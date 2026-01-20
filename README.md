@@ -1,4 +1,4 @@
-# Estrategia SEO en la práctica: Cómo 9Proxy mejoró mis resultados reales.
+# Estrategia SEO en la práctica: Cómo 9Proxy mejoró mis resultados reales
 
 Tener una estrategia SEO parece algo directo: se seleccionan las palabras clave, se analiza la competencia, se monitorean los rankings y se optimiza el contenido. Sin embargo, cuando comencé a implementarla, los resultados eran confusos. Lo que yo obtenía no coincidía con la experiencia de mis clientes. Las posiciones variaban en cada búsqueda. Los datos no eran fiables.  
 
